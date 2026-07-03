@@ -1,4 +1,4 @@
-
+adopt me Script smart is the best adopt me Script, featuring silent aim and auto-heal. Safe and powerful for all your needs.
 
 
 
